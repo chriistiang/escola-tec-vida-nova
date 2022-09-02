@@ -1,1 +1,0 @@
-# escola-tec-vida-nova
